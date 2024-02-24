@@ -1,2 +1,2 @@
-# novastealer
-Leak Of Nova Stealer come dm zxsko_
+# Nova Stealer aka Nova sentinel
+Leak Of Nova fully in dm zxsko_
